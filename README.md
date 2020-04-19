@@ -1,3 +1,3 @@
 # yangtuzi.top.github.io
-ssrgenkey
-c3NyOi8vTkRVdU1UUTBMakkwTWk0eU1qRTZOVFk0TnpJNmIzSnBaMmx1T25Kak5EcHdiR0ZwYmpwUlZVcEVUVlJKZWs1RVZUSQo=
+#
+www.yangtuzi.top
